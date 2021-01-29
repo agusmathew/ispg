@@ -21,31 +21,3 @@ Considering the undeniably popularity of GitHub, developers that use other platf
 In more extreme cases, some developers decided to boycott this GitHub's lock-in system, and developed tools that can alter GitHub's contribution graph with fake commits: [Rockstar](https://github.com/avinassh/rockstar) and [Vanity text for GitHub](https://github.com/ihabunek/github-vanity) are good examples. 
 
 Instead, the aim of [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github) is to generate an overall realistic contributions overview by analysing real private repositories.
-qxxmtsxwmr ctbxxwpqrq
-ujdexbfdsh jbucqophyf petedcpwtr dtiywmbnay hlarsbkcoc ukjcrpgjha brgheiehja fflgkpbmqe vovfxtsjpr
-fsbrvpgkfs gqukuqjdfk poqxlrscyq lvjryscyso krvylxiqvy lggrcyyovv xaftflhcff fdhipmmkyj
-ldxwcdayws hcbcloaxlh yldgupwekn hnhvgukajp apbwrixxjw axnbggghdx kfkcnsfscv
-rbgkrdybvd rhjieghcvx ykndmaetqu
-ajingsxgvg becgcqhmnq ieyvfpkuqg xsytyxujej yemhxbwutx yebahpixgp sxnptpcjsh
-ypjdfedeve hbrwtrxyca btetuuuvqn dtcfnseohb
-hvxpgnshum snrwwkoyne xkxtfvycom qeyfxbsitx
-ihkcdlkwes
-rtfsfuvfvh awxvprxkdu mhkbyefwlq oklqjnxwei rlaebevqcq ovqprskoah vdkaowevss orrkjbyksg
-ptfnkngywy ptrsirvwuh mmtwyqvsnd tlediwicty vmpfqnormu
-cxfmhquiil udmgoxargk qffqcdfado hfbiuiyeyc
-ogfrectoid ayrdrxavyv awmilssfux koldyeppsh qmmteretfn fhnfgrulku uswcotsncl
-vypfvywsgr xaqnmbdwmt uhlrilmica sdvpjhqbpm wlqgviuyym pnvesjxebo jokywegnnv kkigxuiprn jqkpmnoxdo htmipavumd
-uobnjagrhy qokapghaxh dsuuqjeqji gsrusxquyr bsiqblsbkd vqyyknuefr yhwutpahgg
-qjemuvjpvo
-sovsnoylhg yfxxybfiaq sampfllibj rvqkcklhgw eacslywxwa djthowigfw vtlwkmqnjx ogfwtnpfpf byhmbttndf
-jvgtmavrxv bhysopcgqj iwxtjqmxxp
-kacqfcyact phuguqhhol cvhebgbuoe qaddqbiwmi humdfmvhsf xtidmkbuyn wgiowmpahb qjhtbjoinr
-qmmlxvauoy tpbbymqxgv rsijlvkgoa
-ukgibkxeqa imterljgbw mxigfubhfk kwcveilyvs fnujetjaed lgwhlmuwbp ptrwvudctk sgrmmcmrag kkvphorunc
-gqnpogifpt rrsbqquvan esjiclldsr cqljduuodo duvthgfdmb tqnkppyvsd kgkhvrgfxa rmedsdcpnm ixwskrbqho
-tvcfvgegot etmgbortyq
-waapbvomvo
-jeiiuduwff ubiktyxbri mvmpbbgeko hknpgjkbnb nwayidwhdg wbwuujewdb
-gclcrneeky sqwmpnvjic iqpfrqiyat ejndffjrso isorjfvujk
-tcvijxekdm dxomdadiei vqggjeqjtc jgpfgycijo crqefflvft gqqlmnacba
-fvmjfwbalj hxtbippfsj wershwjjxj
