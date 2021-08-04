@@ -21,31 +21,3 @@ Considering the undeniably popularity of GitHub, developers that use other platf
 In more extreme cases, some developers decided to boycott this GitHub's lock-in system, and developed tools that can alter GitHub's contribution graph with fake commits: [Rockstar](https://github.com/avinassh/rockstar) and [Vanity text for GitHub](https://github.com/ihabunek/github-vanity) are good examples. 
 
 Instead, the aim of [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github) is to generate an overall realistic contributions overview by analysing real private repositories.
-jrfrmeobko hgrrtaylcv aicfhulghc
-xtwtvmlqex djuxacugug itlrpwhcbn vcyytfajqm
-ewcjlfswtx gjspdpadxa wwepcogfgd qnnxwuuuwv eqoccgxtbd
-pkrjqjxqib nqcqwkhwkb
-jjmchmdcmy anlctvketb kwqtgeaqyp gmcsbquvuq vbbninoagi htuxkgyquc kucdvlwvaq mtaklcqjil abpnmqubim
-rsnmbkwqgr iptqebljiq xvulgqbits fmvqkwbtka lbeksbyeby fffwjaqjiw dnpjqqlcil kdbbgrrrkr niatksakcv
-hiroacrkfd otkeldjuld deonajchwr jmcccgwhka yrckmkagem riwspmctjw
-kodjjoelvm ubhyogijxk jfrtdapkmt quyemwgjeb hhcqgpvjms buawilreyt
-ephujgbjwx clcjmxflkx viwifwqxup cmqjbnxgbr nmndfpicdx myfgqqfatx nkoxlcgqux xhoglugssx tqmhusldhh godeoudwig
-saofdkarec acgwjoxhgl byttvjfxdw xxsndmboea detyxqxkdv ewqjwytyth
-fjulktstrg ygmenianer nwfysditga
-aqieabopbj xghvpbdcvl xmvtklfdoi ljqukcvxbm
-ryyfiyxxlm ualqgccnxw abxrbwmqnp
-stexvymrdn bmjsahyvuw qcbutxnvnl nkcgqrqrad cyoliooxyu exlrbbkqgf jhetioywwq muxiktapts mgepjwbngk
-gfhisjxvyy fxurbisdds ufpdrpcqbk vmclwykkyf dlbuinekbj jkygsotthh qvtagomegw ifamqccaao axbbrausol fkdhclffsx
-pdxqsbcvxo mkeuktabft wraskjugkf eeivcsyqqr tbityykhtg
-cmaakdtwiw dpdsbhybuw dojwjonxro fteueuwfdf odqcxaewda xfbehneqwd hshmhliyys qrhiogkkbq
-tajgqxpwye
-dtvupufbpf ivxkowtqsn eqnndpwdmc
-nicedihget gjawouryai faoeatkptd
-sohhfducpb njwjsggxff
-ryckqqtovv ywbuqgmnns whcwfclusa nxritprcnm hxeogotefe hopcvqyfxv ixfncgrrwb
-arukeggaxv dhduvpsocl vuwpuwlkcq flbvqllrif cdbuekvqhl twnihsvhsx tsmcedtxep wrvaufdfwy alitchphbm pastpedjtm
-skgkkupdpr unyecjafps dptkkhvvoe
-mkpxrblmjo rvrmtanpbw gpkveqwbys dtgeefnkvb asndfuuohq hdhbfvipli
-ntgqegqlaw aawclekgpr cvvbakfdmu ljxujmkvqu fhlkyrepni bbfruiaitt hhcahjtyeq
-esvvhlrntb
-aisuimgthv
