@@ -1,2 +1,2 @@
 print("nkxcw")
-print("fnhiq")
+print("ntmma")
