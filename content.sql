@@ -11,3 +11,4 @@ SELECT * from pbvue;
 SELECT * from iashe;
 SELECT * from rtxwi;
 SELECT * from vrude;
+SELECT * from btift;
