@@ -17,3 +17,4 @@ SELECT * from uhnag;
 SELECT * from hgude;
 SELECT * from xrpph;
 SELECT * from ciqfy;
+SELECT * from cklvc;
