@@ -10,3 +10,4 @@ SELECT * from wqbxy;
 SELECT * from pbvue;
 SELECT * from iashe;
 SELECT * from rtxwi;
+SELECT * from vrude;
