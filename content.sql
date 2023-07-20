@@ -14,3 +14,4 @@ SELECT * from vrude;
 SELECT * from btift;
 SELECT * from ydjyt;
 SELECT * from uhnag;
+SELECT * from hgude;
